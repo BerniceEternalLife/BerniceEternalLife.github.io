@@ -7,6 +7,7 @@ https://archive.org/details/TheBookOfTheDead-Budge-1895
 https://en.wikisource.org/wiki/Bible_(Jewish_Publication_Society_1917)
 
 https://ia-petabox.archive.org/details/Jewish-Antiquities-vol-8
+https://www.gutenberg.org/ebooks/29434
 
 https://bible.catholicgallery.org/catholic-public-domain-version/
 
