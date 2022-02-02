@@ -66,3 +66,33 @@ https://en.wikipedia.org/wiki/Racism
 
 https://en.wikipedia.org/wiki/Positive_psychology
 
+https://en.wikipedia.org/wiki/Judaism
+
+https://en.wikipedia.org/wiki/Catholic_Church
+https://en.wikipedia.org/wiki/Antisemitism_and_the_New_Testament
+https://en.wikipedia.org/wiki/Herod_the_Great
+
+Yale courses. Introduction to the Old Testament (Hebrew Bible) (RLST 145) with Christine Hayes 
+https://www.youtube.com/watch?v=mo-YL-lv3RY&list=PLh9mgdi4rNeyuvTEbD-Ei0JdMUujXfyWi
+
+Bart D. Ehrman. How Jesus became God 
+part 1: https://www.youtube.com/watch?v=7IPAKsGbqcg&t=9s 
+
+part 2: https://youtu.be/kbLm_Xiqih8 
+
+part 3: https://youtu.be/SdSievHrris 
+
+https://ehrmanblog.org/
+
+https://www.bartehrman.com/
+
+
+The Oriental Institute
+https://youtu.be/SSXmf0fnhMU
+
+https://www.youtube.com/watch?v=hyry8mgXiTk&t=224s
+
+Wonderium 
+https://www.wondrium.com/home
+
+https://www.youtube.com/c/Wondrium
