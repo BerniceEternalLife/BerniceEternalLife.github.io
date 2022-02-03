@@ -1,5 +1,8 @@
 # BerniceEternalLife.github.io
 
+# Ancient Egypt, Eternal life, Israel
+
+## Is Ra El
 
 # References
 https://archive.org/details/TheBookOfTheDead-Budge-1895
@@ -69,8 +72,12 @@ https://en.wikipedia.org/wiki/Positive_psychology
 https://en.wikipedia.org/wiki/Judaism
 
 https://en.wikipedia.org/wiki/Catholic_Church
+
 https://en.wikipedia.org/wiki/Antisemitism_and_the_New_Testament
+
 https://en.wikipedia.org/wiki/Herod_the_Great
+
+https://en.wikipedia.org/wiki/Berenice_(daughter_of_Herod_Agrippa)
 
 Yale courses. Introduction to the Old Testament (Hebrew Bible) (RLST 145) with Christine Hayes 
 https://www.youtube.com/watch?v=mo-YL-lv3RY&list=PLh9mgdi4rNeyuvTEbD-Ei0JdMUujXfyWi
@@ -92,7 +99,10 @@ https://youtu.be/SSXmf0fnhMU
 
 https://www.youtube.com/watch?v=hyry8mgXiTk&t=224s
 
+https://youtu.be/1pO_nERBqKo
+
 Wonderium 
 https://www.wondrium.com/home
 
 https://www.youtube.com/c/Wondrium
+
